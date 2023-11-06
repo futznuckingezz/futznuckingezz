@@ -2,7 +2,7 @@
 - 👀 I’m interested in destroying things
 - 🌱 I’m currently learning python
 - 💞️ I’m looking to collaborate on any intresting stuff
-- 📫 How to reach me https://web.telegram.org/k/
+- 📫 How to reach me your can contact on telegram @red_hair_shanks_69
 
 <!---
 futznuckingezz/futznuckingezz is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
